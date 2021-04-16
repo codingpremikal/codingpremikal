@@ -5,5 +5,5 @@
 - 📫 You can reach me through twitter
 - ⚡ We are running a youtube channel
 -->
- ######please subscribe the channel
+ please subscribe the channel : 
 [CODING PREMIKAL ( Youtube channel )](https://www.youtube.com/channel/UCg6BKhGRwr6G7JDWJsvCxXg/ "CODING PREMIKAL")
